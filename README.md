@@ -1,1 +1,1 @@
-FOO IS FOR Loosers.
+FOO IS FOR Losers.
