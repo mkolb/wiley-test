@@ -1,1 +1,1 @@
-FOO IS FOR WINNERS.
+FOO IS FOR Loosers.
